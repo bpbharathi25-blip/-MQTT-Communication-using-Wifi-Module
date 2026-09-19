@@ -98,6 +98,7 @@ To upload
 
 # Observation
 
+<img width="1080" height="1384" alt="WhatsApp Image 2026-09-19 at 11 05 09 AM" src="https://github.com/user-attachments/assets/f21fcfd9-a230-4ae3-a1f2-803ec60779e8" />
 
 # Result
 
